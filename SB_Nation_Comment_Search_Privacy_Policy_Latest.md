@@ -1,3 +1,5 @@
+---
+---
 # Privacy Policy — Community Comment Search for SB Nation
 
 Last updated: September 23, 2026
